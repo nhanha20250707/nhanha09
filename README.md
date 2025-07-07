@@ -16,4 +16,4 @@
 无论你是喜欢剧情片还是其他类型，我们都有丰富选择。
 我们致力于为你提供流畅、无干扰的观看体验。立即加入，享受日本AV的无限乐趣，感受最真实的高清娱乐！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nhanha20250707/nhanha09 ）</span>
